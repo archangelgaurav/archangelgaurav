@@ -1,1 +1,1 @@
-# This website property of Gaurav Sharma
+# This is the property of Gaurav Sharma
